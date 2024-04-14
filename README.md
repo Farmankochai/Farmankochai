@@ -1,3 +1,1 @@
---Hey! I am Farman Maqbool Kochai
---I am a Programmer from Kashmir
---Get in Touch -- farmaanmaqbool007@gmail.com/farmaanmaqbool000@gmail.com
+
